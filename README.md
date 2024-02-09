@@ -1,4 +1,3 @@
-![image](https://github.com/emanibrahmanjali/emanibrahmanjali/assets/130170572/52f37d85-bc2a-4664-85bd-d565b5d5d0e7)<div>
 🔴🟡🟢
 
 <br>
